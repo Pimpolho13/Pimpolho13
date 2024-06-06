@@ -3,4 +3,4 @@
 
 
 
-[HollowKnightWiki](https://hollowknight.fandom.com/pt/wiki/Ferr%C3%A3o)
+[[̲̅н̲̅σ̲̅l̲̅l̲̅σ̲̅w̲̅K̲̅и̲̅i̲̅g̲̅н̲̅т̲̅W̲̅i̲̅k̲̅i̲̅]](https://hollowknight.fandom.com/pt/wiki/Ferr%C3%A3o)
